@@ -1,4 +1,4 @@
-# Chhaava (2025) 〚𝐌𝐨vi𝐞〙𝐃𝐨wn𝐥𝐨ad 𝐅ilm𝐲zil𝐥𝐚 Mp𝟒𝐦ov𝐢e 𝐊ut𝐭𝐲mo𝐯𝐢e 𝐕ega𝐦ov𝐢𝐞s 𝐅𝐢𝐥m𝐲𝐰ap 𝐇in𝐝i 𝐃u𝐛be𝐝
+# Chhaava 2025〚𝐌𝐨vi𝐞〙𝐃𝐨wn𝐥𝐨ad 𝐅ilm𝐲zil𝐥𝐚 Mp𝟒𝐦ov𝐢e 𝐊ut𝐭𝐲mo𝐯𝐢e 𝐕ega𝐦ov𝐢𝐞s 𝐅𝐢𝐥m𝐲𝐰ap 𝐇in𝐝i 𝐃u𝐛be𝐝
 
 The **Chhaava movie** is a gripping cinematic experience that beautifully weaves together themes of love, courage, and sacrifice. Released recently, this film has captured the hearts of audiences, earning praise for its compelling storytelling and outstanding performances.
 
